@@ -220,4 +220,4 @@ Sonic Dash is available as a full free version with all features and updates inc
 Get ready to dash into action! Download **Sonic Dash free** today and join Sonic and friends in an exhilarating adventure!
 
 ---
-**Last updated:** 2026-10-21 22:06:51 UTC
+**Last updated:** 2026-10-22 01:14:20 UTC
